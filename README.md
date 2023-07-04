@@ -1,0 +1,1 @@
+# tecnicoinfrmatica
